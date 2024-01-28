@@ -17,4 +17,7 @@ https://vm.tiktok.com/ZGerQgL43/
 Usinage des entretoises :
 https://vm.tiktok.com/ZGerQckhR/
 
+Comment j'ai rallongé la chaîne de pompe à huile :
+https://vm.tiktok.com/ZGerKsLqM/
+
 Bolino08c, le bolideur....
