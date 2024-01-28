@@ -1,4 +1,4 @@
-Ce fichier est un plan pour réaliser une plaque de renfort pour 1.8t 20v.
+Ce fichier est un plan pour réaliser une plaque de renfort pour le moteur 1.8t 20v du groupe VAG.
 
 J'ai créé ce fichier en prennant les côtes sur mon 1.8t 20v AGU 150.
 
