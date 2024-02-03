@@ -34,4 +34,11 @@ https://vm.tiktok.com/ZGerQckhR/
 Comment j'ai rallongé la chaîne de pompe à huile :
 https://vm.tiktok.com/ZGerKsLqM/
 
+-------
+
+Plaque installée (Instagram):
+
+https://www.instagram.com/p/C2svJ8fryPP/?igsh=MXNkeDZlbXdzYW1sMQ==
+
+ 
 Bolino08c, le bolideur....
