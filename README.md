@@ -7,6 +7,8 @@ Réaliser des entretoises (entre châpeaux de vilebrequin et la plaque)
 Des vis plus longue de 10mm pour le carter d'huile et la pompe à huile. (Vis de M7 au pas de 1mm)
 Des vis CHC de M10x100 classe 12.9 pour les chapeaux de vilbrequin.
 
+<img src="https://github.com/Bolino08C/Renfortbloc1820vt/blob/main/3D%20Plaque%20renfort%20bloc%201.8%2020vt.png" width="600" />
+
 Sur Youtube(Short) :
 =============
 
