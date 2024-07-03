@@ -28,13 +28,13 @@ Sur TikTok :
 ============
 
 Installation plaque :
-https://vm.tiktok.com/ZGerQgL43/
+[https://vm.tiktok.com/ZGerQgL43/](https://www.tiktok.com/@bolino08c/video/7329587333286694177?is_from_webapp=1&sender_device=pc&web_id=7029986323566839302)
 
 Usinage des entretoises :
 [https://vm.tiktok.com/ZGerQckhR/](https://www.tiktok.com/@bolino08c/video/7327408179132894496?is_from_webapp=1&sender_device=pc&web_id=7029986323566839302)
 
 Comment j'ai rallongé la chaîne de pompe à huile :
-https://vm.tiktok.com/ZGerKsLqM/
+[https://vm.tiktok.com/ZGerKsLqM/](https://www.tiktok.com/@bolino08c/video/7329174074192596257?is_from_webapp=1&sender_device=pc&web_id=7029986323566839302)
 
 -------
 
