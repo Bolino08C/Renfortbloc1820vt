@@ -2,7 +2,7 @@ Ce fichier est un plan pour réaliser une plaque de renfort pour le moteur 1.8t 
 
 J'ai créé ce fichier en prennant les côtes sur mon 1.8t 20v AGU 150.
 
-Il faudra que ton rallonge la chaîne de ta pompe à huile, 
+Il faudra que tu rallonge la chaîne de ta pompe à huile, 
 Réaliser des entretoises (entre châpeaux de vilebrequin et la plaque)
 Des vis plus longue de 10mm pour le carter d'huile et la pompe à huile. (Vis de M7 au pas de 1mm)
 Des vis CHC de M10x100 classe 12.9 pour les chapeaux de vilbrequin.
